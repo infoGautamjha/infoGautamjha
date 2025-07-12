@@ -28,7 +28,7 @@
 
 ## 🤝 Let’s Collaborate
 - 🔍 Curious about energy-efficient tech, sustainable computing, or cloud-based systems?
-- 💌 Let’s connect: **infogautamjha@gmail.com**
+- 💌 Let’s connect: **infojhagautam@gmail.com**
 
 ---
 
